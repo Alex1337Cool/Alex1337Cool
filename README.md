@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Alex1337Cool
-- 👀 I’m interested in ...
+- 👀 I’m interested in many things, but currently SpaceX's Starship
 - 🌱 I’m currently learning how to program
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me Discord Alex_123_Cool#4633
